@@ -1,1 +1,1 @@
-# Dolgozat
+Hevesi Balazs
